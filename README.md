@@ -16,7 +16,7 @@ INT WHENEVER PLEASE!! I LOVE MAKING FRIENDS HEH
 
 ⋆˚꩜ My sillies ever: 
 
-Lemon, Max, Mavis, Ojo, Megs, Vasco, Rose, Nez, Soap, Alim, Morgue, Seb, Christian, Marlon, Caleb, Ven, Tori, Jackie, Ken, Yui, Ameal, Fizzy, Lumi, Dani, Tei, Shuu, Lyric, Kyle
+Lemon, Max, Mavis, Ojo, Megs, Vasco, Rose, Nez, Soap, Alim, Morgue, Seb, Christian, Marlon, Caleb, Ven, Tori, Jackie, Ken, Yui, Ameal, Fizzy, Lumi, Dani, Tei, Shuu, Lyric, Kyle, Nox
 
 (will probs update that over time....) ᯓ★
 
